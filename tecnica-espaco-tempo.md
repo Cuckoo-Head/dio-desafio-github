@@ -18,3 +18,7 @@
 * Objetos e ações: dinâmica espacial e dinâmica social
 * Os grandes objetos: sistemas de ação e dinâmica espacial
 
+4. O meio técnico-científico-informacional
+* O período técnico-científico e os estudos geográficos
+* Meio técnico-científico-informacional e urbanização do Brasil
+
