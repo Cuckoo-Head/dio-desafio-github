@@ -9,6 +9,6 @@
 6. Nós, os doutos
 7. Nossas virtudes
 8. Povos e pátrias
-9. O que é nobre?
-* Epílogo: do alto dos montes
+9. O que é nobre?  
+Epílogo: do alto dos montes  
 *O que alguém é começa a se revelar quando o seu talento declina - quando ele cessa de mostrar o quanto pode. O talento é também um ornamento; um ornamento é também um esconderijo.*
