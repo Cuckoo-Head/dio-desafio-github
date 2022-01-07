@@ -10,5 +10,5 @@
 2. Técnica, espaço, tempo
 * Técnicas, tempo, espaço
 * A forma e o tempo: a história da cidade e do urbano
-* Meio ambiente contruído e flexibilidade tropical
+* Meio ambiente construído e flexibilidade tropical
 * Metrópole: a força dos fracos é o seu tempo lento
