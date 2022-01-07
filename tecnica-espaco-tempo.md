@@ -25,3 +25,5 @@
 5. Propósitos livres sobre o tema em debate
 * A dimensão histórico-temporal e a noção de totalidade em geografia
 * Espaço, mundo globalizado, modernidade
+
+*Ontem, o homem se comunicava com o seu pedaço da natureza praticamente sem mediação, hoje, a própria definição do que é esse entorno, próximo ou distante, o Local ou o Mundo, é cheia de mistérios.*
