@@ -22,3 +22,6 @@
 * O período técnico-científico e os estudos geográficos
 * Meio técnico-científico-informacional e urbanização do Brasil
 
+5. Propósitos livres sobre o tema em debate
+* A dimensão histórico-temporal e a noção de totalidade em geografia
+* Espaço, mundo globalizado, modernidade
